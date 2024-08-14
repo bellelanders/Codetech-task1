@@ -7,6 +7,7 @@ DURATION:5TH AUGUST TO 5TH SEPTEMBER
 MENTOR: MUZAMMIL AHMED 
 
 
+
 Project Overview: E-commerce Website Redesign for Digital Products**
 Objective:
 The project aims to redesign an existing e-commerce website that specializes in selling digital products, such as software, e-books, music, online courses, and digital art. The goal is to enhance the user experience, increase conversion rates, and improve overall customer satisfaction.
