@@ -7,6 +7,15 @@ DURATION:5TH AUGUST TO 5TH SEPTEMBER
 MENTOR: MUZAMMIL AHMED 
 
 
+![WhatsApp Image 2024-08-14 at 12 04 51_e5e5d40e](https://github.com/user-attachments/assets/a299b75f-4b7d-4eb0-9e21-46960a6c650b)
+![WhatsApp Image 2024-08-14 at 12 04 51_623ccf65](https://github.com/user-attachments/assets/a71a2f13-8eca-468c-9134-213a19028e89)
+![WhatsApp Image 2024-08-14 at 12 04 52_febcea1f](https://github.com/user-attachments/assets/986485b4-6017-4df3-8ea0-131289bbb5a6)
+![WhatsApp Image 2024-08-14 at 12 04 52_06af64d4](https://github.com/user-attachments/assets/01294397-eb8f-42f2-92c6-8eab6d8ca256)
+![WhatsApp Image 2024-08-14 at 12 04 53_773387e0](https://github.com/user-attachments/assets/b0cb4eea-3eeb-4bf7-b003-4d5f818d8a37)
+![WhatsApp Image 2024-08-14 at 12 04 53_9ff095c5](https://github.com/user-attachments/assets/dffb34e4-a26a-41a8-a4bd-ee79bf723999)
+![WhatsApp Image 2024-08-14 at 12 04 52_672922d9](https://github.com/user-attachments/assets/67193d5d-96d9-4517-b570-0f7cd1e880de)
+![WhatsApp Image 2024-08-14 at 12 04 52_01e3d9a7](https://github.com/user-attachments/assets/c34719ab-730a-4242-96e9-cea69a331b6f)
+
 
 Project Overview: E-commerce Website Redesign for Digital Products**
 Objective:
